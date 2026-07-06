@@ -1,0 +1,25 @@
+# Psalms 16
+
+Psalms 16 (summary): A messianic psalm of David—He rejoices in the Saints who are on the earth, in his own future redemption from hell, in the fact that God will not suffer His Holy One (the Messiah) to see corruption, and in the fulness of joy that is found in the Lord’s presence.
+
+Psalms 16:1 Preserve me, O God: for in thee do I put my trust.
+
+Psalms 16:2 O my soul, thou hast said unto the Lord, Thou art my Lord: my goodness extendeth not to thee;
+
+Psalms 16:3 But to the saints that are in the earth, and to the excellent, in whom is all my delight.
+
+Psalms 16:4 Their sorrows shall be multiplied that hasten after another god: their drink offerings of blood will I not offer, nor take up their names into my lips.
+
+Psalms 16:5 The Lord is the portion of mine inheritance and of my cup: thou maintainest my lot.
+
+Psalms 16:6 The lines are fallen unto me in pleasant places; yea, I have a goodly heritage.
+
+Psalms 16:7 I will bless the Lord, who hath given me counsel: my reins also instruct me in the night seasons.
+
+Psalms 16:8 I have set the Lord always before me: because he is at my right hand, I shall not be moved.
+
+Psalms 16:9 Therefore my heart is glad, and my glory rejoiceth: my flesh also shall rest in hope.
+
+Psalms 16:10 For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption.
+
+Psalms 16:11 Thou wilt shew me the path of life: in thy presence is fulness of joy; at thy right hand there are pleasures for evermore.

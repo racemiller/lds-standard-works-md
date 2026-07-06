@@ -1,0 +1,195 @@
+---
+title: "Statistical Report 1972"
+speaker: "Presented by Francis M. Gibbons"
+date: "1973-04"
+conference: "April 1973 General Conference"
+order: 6
+source: "https://www.churchofjesuschrist.org/study/general-conference/1973/04/statistical-report-1972?lang=eng"
+needs_review: false
+---
+
+# Statistical Report 1972
+
+**Presented by Francis M. Gibbons** — April 1973 General Conference
+
+For the information of the members of the Church.
+
+The First Presidency issued the following statistical report concerning the membership of the Church at the end of the year 1972.
+
+Number of Stakes of Zion
+
+592
+
+Number of Wards
+
+4,365
+
+Number of Independent Branches in Stakes
+
+1,029
+
+Total Wards and Independent Branches in Stakes
+
+5,394
+
+Number of Mission Branches
+
+1,891
+
+Number of Full-time Missions
+
+101
+
+In the Stakes
+
+2,716,769
+
+In the Missions
+
+511,021
+
+Total Membership
+
+3,227,790
+
+Members Holding the Aaronic Priesthood
+
+Deacons
+
+139,194
+
+Teachers
+
+101,042
+
+Priests
+
+160,993
+
+Total Number Holding Aaronic Priesthood
+
+401,229
+
+Members Holding the Melchizedek Priesthood
+
+Elders
+
+264,465
+
+Seventies
+
+24,228
+
+High Priests
+
+93,344
+
+Total Number Holding Melchizedek Priesthood
+
+382,037
+
+Grand Total, Members Holding Aaronic or Melchizedek Priesthood
+
+783,266
+
+An Increase of 30,216 during the year
+
+Children blessed in stakes and missions
+
+69,695
+
+Children of record baptized in stakes and missions
+
+58,343
+
+Converts baptized in stakes and missions
+
+91,237
+
+Relief Society
+
+715,071
+
+Sunday School
+
+2,442,033
+
+Aaronic Priesthood MIA—Young Men
+
+164,925
+
+Aaronic Priesthood MIA—Young Women
+
+186,393
+
+Primary Association
+
+478,769
+
+Birth rate per thousand
+
+26.43
+
+Number of persons married per thousand
+
+15.39
+
+Death rate per thousand
+
+4.74
+
+Number of persons assisted
+
+102,961
+
+Number placed in remunerative employment
+
+14,502
+
+Man-days of work donated to the welfare plan
+
+187,800
+
+Unit-days of equipment use donated
+
+7,140
+
+Names cleared for proxy temple ordinances (endowments)
+
+2,181,918
+
+Genealogical records microfilmed in 20 countries during the year brought the total to 756,062 one hundred foot rolls of microfilm for use of the Church which are the equivalent of over 3,607,002 printed volumes of 300 pages each.
+
+Number of ordinances performed in the 15 operating temples:
+
+For the living
+
+68,376
+
+For the dead
+
+9,046,194
+
+Total Number of ordinances
+
+9,114,570
+
+Total cumulative enrollments in Church schools, including Institutes and Seminaries
+
+257,388
+
+President Joseph Fielding Smith, Tenth President of the Church of Jesus Christ of Latter-day Saints, at the age of 95 on July 2, 1972
+
+Lula Maughan Jones Isaacson, widow of the late Elder Thorpe B. Isaacson, Assistant to the Council of the Twelve
+
+Lalene Hendricks Hart, widow of the late Charles H. Hart, member of the First Council of Seventy
+
+June B. Thayn, president of the Chesapeake Stake of Zion
+
+Elmo R. Smith, president of the Oakland-Berkeley Stake of Zion
+
+E. Earl Hawkes, publisher and general manager of the Deseret News
+
+Alfred W. Uhrhan, executive secretary of the General Welfare Committee
+
+Gus P. Backman, prominent Salt Lake community and business leader
